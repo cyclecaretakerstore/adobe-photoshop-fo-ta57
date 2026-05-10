@@ -1,4 +1,4 @@
-
+Enhance Adobe Photoshop for macOS with Adobe Photoshop for macOS rare Filter - gradient maps and auto-retouch, the #1 filter. Includes gradient maps and auto-retouch for a
 
 
 
